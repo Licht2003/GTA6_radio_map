@@ -8,4 +8,4 @@ All trademarks, copyrights, and original content belong to their respective owne
 
 Feel free to explore the website, check out the source code, and take a look at how everything works! Contributions, suggestions, and feedback are always welcome.
 
-**Enjoy exploring, and see you in Los Santos!**
+**Enjoy exploring, and see you in Vice City!**
